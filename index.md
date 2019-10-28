@@ -1,4 +1,6 @@
 10.19
+![junglestudy](https://user-images.githubusercontent.com/54787701/67713360-b2fdd880-f993-11e9-9bcb-ee713af12beb.png)
+10.19
 ![sketchything](https://user-images.githubusercontent.com/54787701/67338938-cae6df80-f4ef-11e9-86a6-f257de6d3be2.jpg)
 10.19
 ![elevation](https://user-images.githubusercontent.com/54787701/67150204-0ed0af00-f27a-11e9-95c4-a4327084dd97.png)
