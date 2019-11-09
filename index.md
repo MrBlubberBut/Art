@@ -1,3 +1,5 @@
+11.19
+![bigwheelmain](https://user-images.githubusercontent.com/54787701/68521843-c568f380-026a-11ea-871d-b1335227026e.jpg)
 10.19
 ![junglestudy](https://user-images.githubusercontent.com/54787701/67713360-b2fdd880-f993-11e9-9bcb-ee713af12beb.png)
 10.19
