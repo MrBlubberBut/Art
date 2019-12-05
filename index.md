@@ -77,12 +77,10 @@
 ![cardinal](https://user-images.githubusercontent.com/54787701/70200339-85662680-16d9-11ea-9534-aed64f7ea693.png)
 ![cat1](https://user-images.githubusercontent.com/54787701/70200340-85662680-16d9-11ea-9333-089b5fc4760a.png)
 ![kitytcat](https://user-images.githubusercontent.com/54787701/70200341-85662680-16d9-11ea-8cb4-1b0f3c7d3ad3.png)
-![portraitbw2](https://user-images.githubusercontent.com/54787701/70200342-85662680-16d9-11ea-81d3-ab86a236e6a3.png)
-![portraitbw](https://user-images.githubusercontent.com/54787701/70200343-85febd00-16d9-11ea-87e4-26f34fa9679e.png)
+
 ![afwcefcewa](https://user-images.githubusercontent.com/54787701/70200344-85febd00-16d9-11ea-879f-7739d42867fa.png)
-![facwe](https://user-images.githubusercontent.com/54787701/70200345-85febd00-16d9-11ea-9a5b-21f25f5f8cbd.jpg)
-![afwec](https://user-images.githubusercontent.com/54787701/70200346-85febd00-16d9-11ea-9859-c76162c0ab0b.jpg)
-![cawfe](https://user-images.githubusercontent.com/54787701/70200347-85febd00-16d9-11ea-8828-49f516325220.jpg)
+
+
 ![acefwcfaew](https://user-images.githubusercontent.com/54787701/70200348-85febd00-16d9-11ea-811c-ed7db21b13ff.png)
 
 
@@ -202,10 +200,9 @@
 ![huntresswallpapernonlood](https://user-images.githubusercontent.com/54787701/70200466-8e56f800-16d9-11ea-861d-e6868c6bf393.png)
 ![nobloodhuntress](https://user-images.githubusercontent.com/54787701/70200467-8e56f800-16d9-11ea-8e45-eb192086908a.png)
 ![huntresssave](https://user-images.githubusercontent.com/54787701/70200468-8e56f800-16d9-11ea-899e-a56abb4effbe.png)
-![neadbdhuntress](https://user-images.githubusercontent.com/54787701/70200469-8e56f800-16d9-11ea-9a2c-64ca7fafa904.png)
+
 ![m,atrix](https://user-images.githubusercontent.com/54787701/70200470-8e56f800-16d9-11ea-9635-e75acb2fb75e.png)
-![figuresketches2](https://user-images.githubusercontent.com/54787701/70200471-8e56f800-16d9-11ea-9ee3-03bdfaa90c68.png)
-![figuresketches](https://user-images.githubusercontent.com/54787701/70200473-8eef8e80-16d9-11ea-96b4-5b4c1b7f36aa.png)
+
 ![landscape365](https://user-images.githubusercontent.com/54787701/70200474-8eef8e80-16d9-11ea-9666-3c64f57195ed.png)
 ![long](https://user-images.githubusercontent.com/54787701/70200475-8eef8e80-16d9-11ea-8212-f33f33f43acc.png)
 ![female portrait](https://user-images.githubusercontent.com/54787701/70200477-8eef8e80-16d9-11ea-8854-9d732581cfe9.png)
