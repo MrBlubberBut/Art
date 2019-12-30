@@ -1,3 +1,5 @@
+12.19
+![cityscene](https://user-images.githubusercontent.com/54787701/71565559-4ecfc180-2a75-11ea-903a-acf8788f1232.png)
 12.19 WIP, not going to finish
 ![junglesceneprog2](https://user-images.githubusercontent.com/54787701/71455059-005eb200-2759-11ea-9545-a74f056213b9.png)
 11.19
