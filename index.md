@@ -1,4 +1,6 @@
 5.2020
+![face1_2_3_4_5_10](https://user-images.githubusercontent.com/54787701/83309863-6227ba00-a1d8-11ea-8eff-0e8476c9c31d.jpg)
+5.2020
 ![face11](https://user-images.githubusercontent.com/54787701/83309096-5c30d980-a1d6-11ea-83b3-9e1650bd6d92.jpg)
 4.20
 ![skultemo](https://user-images.githubusercontent.com/54787701/81883693-e2f17f80-9563-11ea-8f3b-3e1b9035bc0b.JPG)
