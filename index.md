@@ -1,3 +1,15 @@
+10.2020
+![sketches5_pleinair2](https://user-images.githubusercontent.com/54787701/98640815-b642d880-22f8-11eb-8801-2414f3052e13.png)
+10.2020
+![sketches5_pleinair](https://user-images.githubusercontent.com/54787701/98640781-a62af900-22f8-11eb-8ae7-155a8b3405e5.png)
+10.2020
+![sketches2_portrait2](https://user-images.githubusercontent.com/54787701/98640743-914e6580-22f8-11eb-826d-d92a61b1be7b.JPG)
+10.2020
+![sketches3_portraitsketch](https://user-images.githubusercontent.com/54787701/98640677-71b73d00-22f8-11eb-80f9-2376e7b659bd.JPG)
+9.2020
+![faces_portrait](https://user-images.githubusercontent.com/54787701/98640412-17b67780-22f8-11eb-8f68-cedc12540a39.JPG)
+9.2020
+![anatomy3_alligator](https://user-images.githubusercontent.com/54787701/98639861-f5bcf500-22f7-11eb-8601-70e65c3b2495.JPG)
 5.2020
 ![face17](https://user-images.githubusercontent.com/54787701/83491026-0df23380-a47f-11ea-9631-d30bf4bb3d75.png)
 5.2020
