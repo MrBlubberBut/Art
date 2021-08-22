@@ -1,3 +1,5 @@
+6.2021
+![newimage2](https://user-images.githubusercontent.com/54787701/130371357-860b47e6-52f1-4d2f-b50d-2d302df58730.jpg)
 1.2021
 ![sketches10_staff](https://user-images.githubusercontent.com/54787701/103730036-d10b9380-4faf-11eb-87ed-9081be2cfbf7.png)
 1.2021
