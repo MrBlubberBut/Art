@@ -1,3 +1,5 @@
+02.2022 // Study of another artist's work
+![maojin_study](https://user-images.githubusercontent.com/54787701/154589086-3f06f083-e7ce-459b-91b7-2bcc626fac9b.jpg)
 02.2022
 ![bridge](https://user-images.githubusercontent.com/54787701/153114803-37570f0d-8bb5-4217-85ee-e71418c98ace.png)
 ~03.2020 - 2021 --old piece, never finished :(--
