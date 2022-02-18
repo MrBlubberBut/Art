@@ -1,3 +1,5 @@
+02.2022
+![sketches21_experiment](https://user-images.githubusercontent.com/54787701/154593081-d08f209e-9b9e-4c76-b120-effb8537466b.jpg)
 02.2022 // Study of another artist's work
 ![maojin_study](https://user-images.githubusercontent.com/54787701/154589086-3f06f083-e7ce-459b-91b7-2bcc626fac9b.jpg)
 02.2022
