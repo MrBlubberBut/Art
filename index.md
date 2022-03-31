@@ -1,3 +1,17 @@
+03.2022
+![sketches25_spacerocks](https://user-images.githubusercontent.com/54787701/161125989-342bf28e-e84e-425d-9f90-51eab76f6347.jpg)
+03.2022
+![sketches25_sinbad](https://user-images.githubusercontent.com/54787701/161125967-213ca4cc-9b91-41f0-85be-43f9d7a2aaff.jpg)
+03.2022
+![sketches24_plant](https://user-images.githubusercontent.com/54787701/161125952-f1666ec8-b140-42d1-bd16-64803b2932ba.jpg)
+03.2022
+![sketches24_bluetrees](https://user-images.githubusercontent.com/54787701/161125914-5f197fbe-4cc8-44c6-b713-095b2c05c570.jpg)
+03.2022
+![sketches24_volcano](https://user-images.githubusercontent.com/54787701/161124210-221dcb22-613d-4841-85aa-6d6dbdb9fc0c.jpg)
+03.2022
+![sketches22_dreamland](https://user-images.githubusercontent.com/54787701/161124174-152b9cfa-4d53-42ce-98a9-f72af777d249.jpg)
+03.2022
+![sketches22_character](https://user-images.githubusercontent.com/54787701/161124115-d5e8827e-98bc-438f-be47-d26b179c5d54.jpg)
 02.2022
 ![sketches21_experiment](https://user-images.githubusercontent.com/54787701/154593081-d08f209e-9b9e-4c76-b120-effb8537466b.jpg)
 02.2022 // Study of another artist's work
