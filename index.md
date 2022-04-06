@@ -17,6 +17,8 @@
 02.2022 // Study of another artist's work
 ![maojin_study](https://user-images.githubusercontent.com/54787701/154589086-3f06f083-e7ce-459b-91b7-2bcc626fac9b.jpg)
 02.2022
+![sketches21_rocks](https://user-images.githubusercontent.com/54787701/161882562-89b6d88c-948e-42d0-88b4-7c988d696009.jpg)
+02.2022
 ![bridge](https://user-images.githubusercontent.com/54787701/153114803-37570f0d-8bb5-4217-85ee-e71418c98ace.png)
 ~03.2020 - 2021 --old piece, never finished :(--
 ![gardens2](https://user-images.githubusercontent.com/54787701/149821426-684ba069-f418-4e99-af64-7980b301539c.png)
