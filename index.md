@@ -1,3 +1,13 @@
+12.2022
+![image](https://user-images.githubusercontent.com/54787701/209889657-b669a2d8-de2c-4a8e-8d72-9f282ddbb17a.png)
+12.2022
+![sketches31_desert](https://user-images.githubusercontent.com/54787701/209888927-8595dec5-6888-45cc-aeb8-e8d3ac2c2887.png)
+10.2022
+![sketches29_wolf](https://user-images.githubusercontent.com/54787701/209888574-55ca74f1-7848-4b52-aaf4-740ad14ba665.jpg)
+10.2022
+![sketches28_godking](https://user-images.githubusercontent.com/54787701/209888558-1e2a0bf5-38fd-470a-bab6-cbaded449f69.jpg)
+04.2022
+![sketches26_alienland](https://user-images.githubusercontent.com/54787701/209888537-d9ed12d9-2b9e-43c9-b74d-9e81370ebdb9.jpg)
 03.2022
 ![sketches25_spacerocks](https://user-images.githubusercontent.com/54787701/161125989-342bf28e-e84e-425d-9f90-51eab76f6347.jpg)
 03.2022
